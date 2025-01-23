@@ -6,5 +6,4 @@
 
 ***
 
-![super-saiyan-goku-3440x1440-13416](https://github.com/user-attachments/assets/d37a6139-dd28-4ee1-900b-90977b8b6e8a)
-
+![the_crimson_guard_by_socialgatheringstar_digb8ay-fullview](https://github.com/user-attachments/assets/77a5964a-246d-4bcc-bcbd-e871847bc9e7)
